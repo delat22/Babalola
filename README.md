@@ -2,6 +2,4 @@
 
 ## Task 2
 
-https://lucid.blog/babalolalateef18/post/1566597006 
-
-https://twitter.com/delatbaba/status/1165030750409973760?s=19
+https://lucid.blog/babalolalateef18/post/html-and-css-a-combo-of-beauty-6df
